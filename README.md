@@ -1,0 +1,1 @@
+# Goalamzhopname.github.io
